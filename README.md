@@ -1,2 +1,2 @@
 # khana khaa lo
-# khaa kr mote mt ho jana
+# food is troo lobb
